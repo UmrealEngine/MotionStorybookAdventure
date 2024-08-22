@@ -1,6 +1,4 @@
-![11](https://github.com/user-attachments/assets/e1008525-8377-4254-bfbb-2d0ea16e25a1)
-  
-  
+![323](https://github.com/user-attachments/assets/2d9a50e5-2d9d-4b5f-b76a-cc795a1ea337)
 ![06](https://github.com/user-attachments/assets/f9536cc8-9790-432e-82a7-c7c73894943c)
 ![07](https://github.com/user-attachments/assets/4f088773-3cdd-4f05-9830-4c066c2a7b0e)
 ![10](https://github.com/user-attachments/assets/5a3dd392-c04a-47b1-ad3e-9568322c2dbe)
@@ -17,5 +15,8 @@
 ![17](https://github.com/user-attachments/assets/9ea2086c-a7a3-456d-b83f-14b44f8399f8)
 ![18](https://github.com/user-attachments/assets/8ae19233-b10e-471a-a918-86b74eeaf8ab)
 ![19](https://github.com/user-attachments/assets/830ce714-7670-4bb4-878e-5d521adb851f)
+![KakaoTalk_20240823_050914566](https://github.com/user-attachments/assets/281e976c-9d16-4ebb-91cb-486dfc621bcf)
+![KakaoTalk_20240823_050914566_01](https://github.com/user-attachments/assets/4de9e13d-34af-4448-99e3-3d231e70c37f)
+![KakaoTalk_20240823_050453128](https://github.com/user-attachments/assets/8a958e6a-6282-4c19-b853-94c4d964556f)
 
 
